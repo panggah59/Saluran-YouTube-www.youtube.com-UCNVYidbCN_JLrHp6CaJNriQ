@@ -1,1 +1,1 @@
-# Saluran-YouTube-www.youtube.com-UCNVYidbCN_JLrHp6CaJNrQ
+www.youtube.com-UCNVYidbCN_JLrHp6CaJNriQ
