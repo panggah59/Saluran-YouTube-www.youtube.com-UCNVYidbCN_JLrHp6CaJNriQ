@@ -1,1 +1,1 @@
-www.youtube.com-UCNVYidbCN_JLrHp6CaJNriQ
+https://www.youtube.com/channel/UCNVYidbCN_JLrHp6CaJNriQ
